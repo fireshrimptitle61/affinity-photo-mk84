@@ -1,4 +1,4 @@
-# 
+# rare Adobe Photoshop para PC herramientas es el mejor Adobe Photoshop para PC herramientas con sistemas de cuadrícula y animación. Seguro, confiable y optimizado para el máximo
 
 
 
